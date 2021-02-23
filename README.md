@@ -52,12 +52,13 @@
 
 
 ## Контакты и Автор
-1. Канал проекта в Telegram: [@auto_investment](https://t.me/auto_investment)
-2. Чат проекта в Telegram: [@auto_investment](https://t.me/auto_investment_chat)
-3. Автор: Михаил Иванов
-4. ВК: [https://m.vk.com/mikhail_eco_coach](https://m.vk.com/mikhail_eco_coach)
-5. Телеграмм [https://t.me/mikhail_eco_coach](https://t.me/mikhail_eco_coach)
-6. Поблагодарить на чай: +79105990489
+1. Сайт: [https://lyumih.github.io/auto_investment/](https://lyumih.github.io/auto_investment/)
+2. Канал проекта в Telegram: [@auto_investment](https://t.me/auto_investment)
+3. Чат проекта в Telegram: [@auto_investment](https://t.me/auto_investment_chat)
+4. Автор: Михаил Иванов
+5. ВК: [https://m.vk.com/mikhail_eco_coach](https://m.vk.com/mikhail_eco_coach)
+6. Телеграмм [https://t.me/mikhail_eco_coach](https://t.me/mikhail_eco_coach)
+7. Поблагодарить на чай: +79105990489
 
 
 ### Я благодарен, что вы дочитали эту статью до конца. Желаю, чтобы вы стали успешными инвесторами. Напишите пожалуйста мне в соцсети или в чат ваш отзыв, что понравилось или не понравилось, как ещё можно увеличить пассивное накопление богаства.
